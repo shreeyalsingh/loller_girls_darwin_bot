@@ -38,6 +38,10 @@ ENDING- after all the alterations tried the best codes of the team where run mul
 
 
 
+The two codes I have attached have included all my changes as I have finally included all my changes into the last code i.e code2 which was consistent in walking till 22-26.5m.
+
+
+
 
 
 
